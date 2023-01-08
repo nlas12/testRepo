@@ -1,1 +1,1 @@
-wichtige informationen
+wichtige informationen sind wichtig
